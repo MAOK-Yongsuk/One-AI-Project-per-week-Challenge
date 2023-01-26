@@ -1,1 +1,1 @@
-# One-AI-Project-per-week-Challenge 💻✨
+# One-Project-per-week-Challenge 💻✨
